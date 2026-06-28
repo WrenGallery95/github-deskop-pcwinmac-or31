@@ -1,4 +1,4 @@
-# 
+# Melhor GitHub Desktop modelos para Mac OS | Ultimato GitHub Desktop modelos para PC Windows. Com visualização de respostas e histórico de commits — otimizado para máximo desempenho em cada plataforma.
 
 
 
